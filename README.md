@@ -1,1 +1,1 @@
-# shane-lester99.github.io
+Please redirect to [Game Zone](shane-lester99.github.io/GameZone) platform.
